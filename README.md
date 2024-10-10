@@ -46,3 +46,5 @@ Bestrooi de lasagne bolognese met de geraspte kaas en zet 45 minuten in de oven.
 Tips: Je hoeft voor deze lasagne de lasagnevellen niet voor te koken. Doe je dit wel dan hoeft hij maar circa 25 minuten in de oven.
 
 Voor een vegetarische variant vervang je het rundergehakt door vegetarisch gehakt.
+![lasagne-bolognese-09-300x200](https://github.com/user-attachments/assets/4d33753d-9f86-4dc1-8caf-3ae6835a31be)
+
